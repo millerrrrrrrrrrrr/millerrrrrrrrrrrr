@@ -1,9 +1,13 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  	<ins>she.her.pup</ins>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎<img src="https://enchantments.carrd.co/assets/images/gallery09/23c0f495.gif?v=5c8435d5" alt="Untitled"/>
+
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  <img src="https://enchantments.carrd.co/assets/images/gallery19/a3a2b0e7.png?v=5c8435d5" alt="Untitled"/>
+<ins>she.her.pup</ins>
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ 
 
  ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎<ins>1# black sprunki fan. fight me.</ins>
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎<ins>I love my husband more than urs</ins>
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎🐾 <ins>I love my husband more than urs</ins>
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎‎ <img src="https://enchantments.carrd.co/assets/images/gallery22/53497258.gif?v=5c8435d5" alt="Untitled"/>
 
@@ -18,13 +22,34 @@
 byi
 
 ‎‎‎<ins>minor‎‎‎</ins> so hey. dont be genuinely weird lol.
+
 free c+h at all times, don't be scared to talk to me!!
+
 I'm very busy lately since I recently opened comms + i got allat of homework lol
+
+I'm very extroverted and u can use me to tell others literally anything if u dont wanna <img src="https://forestcake.carrd.co/assets/images/gallery30/1600fcc8.gif?v=f4645532" alt="Untitled"/>
+
+Im extremely hypersexual and I try to control it 99% of the time, so excuse how I may act <img src="https://enchantments.carrd.co/assets/images/gallery03/adecc5a1.gif?v=5c8435d5" alt="Untitled"/>
+
+<ins>I'm in need of constant attention and I need a everyday hru sooo like</ins>
+
 I tend to make very ‎‎‎<ins>weird jokes sometimes and say impusilve stuff, and usually I just repeat the same phrase like stupid baba or yo chill tf out yo‎‎‎</ins> <img src="https://enchantments.carrd.co/assets/images/gallery03/adecc5a1.gif?v=5c8435d5" alt="Untitled"/>
+
 last but not least, ‎‎‎<ins>I'm a really nice person I swear I just get pissed off easily so I tend to get a bit mean LOLL please be my oomf‎‎‎</ins> <img src="https://enchantments.carrd.co/assets/images/gallery02/0cb72312.gif?v=5c8435d5" alt="Untitled"/>
 
 
-<ins>fandoms!</ins>
+
+
+<ins>series/games I like</ins>
+
+Bold - favourite
+
+**Dandys world, Sprunki, Bojack Horseman**, object shows, **guts and blackpowder**, phighting, azumanga, **rainworld**, lucky star, lps popular, law of talos, **lego batman movie, lego movie, forsaken, dandys block (idk wether to consider it its own fandom or not atp)**, omori, blocktales,  **jims computer, teach the cat**, jurrassic park, eddsworld,  scott pilgrim, **nso**..yea. (i purposfully put alot of stuff here to make people like me? tell me if one of these fandoms or shii is problematic) 
+
+
+
+<img src="https://enchantments.carrd.co/assets/images/gallery24/7fba5982.gif?v=5c8435d5" alt="Untitled"/> me waiting for my cute husband
+
 
 
 
