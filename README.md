@@ -43,7 +43,7 @@ last but not least, ‎‎‎<ins>I'm a really nice person I swear I just get pi
 
 
 
-# <ins>series/games I like</ins>
+# <ins>series/games/movies I like</ins>
 
 Bold - favourite
 
