@@ -13,6 +13,29 @@
 ![image](https://github.com/user-attachments/assets/48e25d27-bcff-4048-9d76-5d7279eeca4a)
 
 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎no dni except chronically online pony towns (touch trigger/phantom pain ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ ‎‎ ‎  	kids and people who think they own the platform (plot twist they dont lol)) <img src="https://enchantments.carrd.co/assets/images/gallery06/8c645908.gif?v=5c8435d5" alt="Untitled"/>
+
+byi
+
+‎‎‎<ins>minor‎‎‎</ins> so hey. dont be genuinely weird lol.
+free c+h at all times, don't be scared to talk to me!!
+I'm very busy lately since I recently opened comms + i got allat of homework lol
+I tend to make very ‎‎‎<ins>weird jokes sometimes and say impusilve stuff, and usually I just repeat the same phrase like stupid baba or yo chill tf out yo‎‎‎</ins> <img src="https://enchantments.carrd.co/assets/images/gallery03/adecc5a1.gif?v=5c8435d5" alt="Untitled"/>
+last but not least, ‎‎‎<ins>I'm a really nice person I swear I just get pissed off easily so I tend to get a bit mean LOLL please be my oomf‎‎‎</ins> <img src="https://enchantments.carrd.co/assets/images/gallery02/0cb72312.gif?v=5c8435d5" alt="Untitled"/>
+
+
+<ins>fandoms!</ins>
+
+
+
+
+
+
+
+
+
+
+
 
 ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌﹌﹌﹌ ﹌﹌
 
