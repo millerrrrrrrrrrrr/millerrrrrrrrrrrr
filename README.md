@@ -47,7 +47,7 @@ last but not least, ‎‎‎<ins>I'm a really nice person I swear I just get pi
 
 Bold - favourite
 
-**Dandys world, Sprunki, Bojack Horseman**, object shows, **guts and blackpowder**, phighting, azumanga, **rainworld**, lucky star, lps popular, law of talos, **lego batman movie, lego movie, forsaken, dandys block (idk wether to consider it its own fandom or not atp)**, omori, blocktales,  **jims computer, teach the cat**, jurrassic park, eddsworld,  scott pilgrim, **nso**..yea. (i purposfully put alot of stuff here to make people like me? tell me if one of these fandoms or shii is problematic) 
+**Dandys world, Sprunki, Bojack Horseman**, object shows, **guts and blackpowder**, phighting, azumanga, **rainworld**, lucky star, lps popular, law of talos, **lego batman movie, lego movie, forsaken, dandys block (idk wether to consider it its own fandom or not atp)**, omori, blocktales,  **jims computer, teach the cat**, jurrassic park, eddsworld,  scott pilgrim, **nso, ddlc**..yea. (i purposfully put alot of stuff here to make people like me? tell me if one of these fandoms or shii is problematic) 
 
 
 
